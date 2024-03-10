@@ -2,7 +2,7 @@
 - 👀 I’m interested in creating visuals
 - 🌐 I’m currently learning Digital Design
 - 🖥️ I’m looking to collaborate on design projects
-- 📫 How to reach me instagram: matieu_dekegeleer 
+- 📫 How to reach me instagram: mathieu_dekegeleer 
 - 😄 Pronouns: MD
 - ⚡ Fun fact: Favourite pokemon: Umbreon
 
