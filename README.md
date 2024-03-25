@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MathieuDekegeleer
+- 👋 Hi, I’m MathieuDekegeleer
 - 👀 I’m interested in creating visuals
 - 🌐 I’m currently learning Digital Design
 - 🖥️ I’m looking to collaborate on design projects
